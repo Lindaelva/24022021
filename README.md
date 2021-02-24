@@ -1,3 +1,1 @@
-# 24022021
-cau lina!
-ka tev iet?
+# 24022021cau lina!ka tev iet?loti labi!
